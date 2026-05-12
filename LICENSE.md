@@ -1,4 +1,4 @@
-#  
+#  Experience math for brainrots like never before with no-ban Scripts for math for brainrots, the #1 Script. Includes auto-collect and invisibility for
 
 
 
